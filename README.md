@@ -1,1 +1,0 @@
-# mikeadams1.github.io

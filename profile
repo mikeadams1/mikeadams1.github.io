@@ -1,1 +1,0 @@
-Solid Profile page
